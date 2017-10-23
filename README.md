@@ -1,1 +1,3 @@
 # kerbal
+
+discord.gg/JvxSGMu
